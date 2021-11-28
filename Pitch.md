@@ -8,7 +8,7 @@ So why is this? What has contributed to New York's success? Does this have anyth
 With the Family First Preservation Services Act being passed in 2020, federal funding will become more widely available 
 to states to spend on family preservation services. These services aim to support parents who are struggling to maintain homes that will allow them to keep their children, often
 due to addiction, financial troubles, meantal health or safety issues. Studies have shown that children suffer from pre-verbal trauma when they are separated from their families.
-So ultimately, this Act being passed is good, right? Some <a href="https://imprintnews.org/featured/new-york-state-worries-city-welcomes-family-first-act/30055>legislators</a> on 
+So ultimately, this Act being passed is good, right? Some <a href="https://imprintnews.org/featured/new-york-state-worries-city-welcomes-family-first-act/30055> legislators </a> on 
 the state level in New York, are concerned about this restrictions this poses on borrowing for congregate care, which includes group homes an over-night care for foster children.
   
 This chart will be taking a look at the trends in children entering foster care over time, as well as the number of children who have had parental rights terminated. These numbers
